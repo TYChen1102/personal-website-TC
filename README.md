@@ -1,1 +1,1 @@
-https://TYChen1102.github.io
+https://tychen1102.github.io/personal-website-TC/
